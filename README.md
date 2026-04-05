@@ -53,7 +53,6 @@ My goal is to build impactful digital solutions, work on real-world projects, an
 
 ## Let's Connect
 
-* 💼 Open to freelance and collaboration opportunities
 * 🌍 Portfolio: *(https://leonakingeneye.live/)*
 * 📧 Email: *leonakingeneye2002@gmail.com*
 
